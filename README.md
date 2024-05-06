@@ -1,0 +1,1 @@
+Evaluación mediante un semáforo de inversiones de proyectos públicos que permitan visualizar el estado situacional e incorporación en anexos de la ley de presupuestos en el período comprendido de 2018 al 2024.
